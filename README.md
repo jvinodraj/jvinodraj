@@ -34,7 +34,7 @@ This principle influences how I approach engineering:
 
 ## Goals
 
-- Become an Core .... dont know what to fill here
+- Become a Core blah... blah.. blah... dont know what to fill here
 - Contribute to open source
 - Build AI-powered developer tools
 - Qualify for Boston Marathon
