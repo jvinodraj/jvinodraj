@@ -1,16 +1,29 @@
-## Hi there 👋
+# Hi there 👋
 
-<!--
-**jvinodraj/jvinodraj** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I'm Vinod
 
-Here are some ideas to get you started:
+## About Me
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 🐍 Python Developer
+- ☁️ Data Engineer
+- 🤖 Exploring AI Agents & Automation
+- 🔧 Embedded Systems Enthusiast
+- 🏃 Marathon Runner
+- 📖 Passionate about Faith, Discipline, and Continuous Learning
+
+## Current Projects
+
+- 🤖 Agent Governance Toolkit research
+- 📊 Data Engineering on GCP/Azure
+- 🚀 theEagle - FIT file analytics and running insights
+
+## Goals
+
+- Become an elite Python engineer
+- Contribute to open source
+- Build AI-powered developer tools
+- Qualify for Boston Marathon
+
+## Connect
+
+- GitHub: https://github.com/jvinodraj
