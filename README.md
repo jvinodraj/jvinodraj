@@ -44,3 +44,7 @@ This principle influences how I approach engineering:
 - GitHub: https://github.com/jvinodraj
 
 *"Code with purpose. Run with discipline. Renew the mind daily."*
+
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=jvinodraj&label=Profile%20Views&color=0e75b6&style=flat" alt="Profile Views" />
+</p>
