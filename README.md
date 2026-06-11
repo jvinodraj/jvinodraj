@@ -22,7 +22,7 @@ This principle influences how I approach engineering:
 * 🐍 Python Development
 * ☁️ Data Engineering
 * 🤖 AI Agents & Governance
-* 🔧 Passionate about Research on theology of grace, law, and pneumati.
+* 🔧 Passionate about Research on theology of grace, law, and pneuma.
 * 🏃 Endurance Running & Performance Analytics
 * 🌱 Open Source Contribution
 
