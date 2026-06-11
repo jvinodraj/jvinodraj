@@ -20,7 +20,7 @@ This principle influences how I approach engineering:
 ## Current Interests
 
 * 🐍 Python Development
-* ☁️ Data Engineering & GCP
+* ☁️ Data Engineering
 * 🤖 AI Agents & Governance
 * 🔧 Passionate about Research on theology of grace, law, and pneumati.
 * 🏃 Endurance Running & Performance Analytics
