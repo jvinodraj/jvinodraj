@@ -6,7 +6,7 @@ I build solutions with Python, cloud technologies, and intelligent systems while
 
 ## 📖 A Guiding Philosophy
 
-> "Be renewed in the spirit of your mind." — Ephesians 4:23
+> "Be renewed in the spirit of your mind." - Ephesians 4:23
 
 The Greek phrase *τῷ πνεύματι τοῦ νοὸς* (*tō pneumati tou noos*) speaks of the inner spirit that governs the mind itself and not merely changing thoughts, but renewing the disposition from which thoughts arise.
 
