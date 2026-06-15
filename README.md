@@ -112,10 +112,6 @@ AI Agents • Agent Governance • LLM Applications
 </p>
 
 <p align="center">
-  <img src="https://streak-stats.demolab.com?user=jvinodraj" alt="GitHub Streak" />
-</p>
-
-<p align="center">
   <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=jvinodraj&layout=compact" alt="Top Languages" />
 </p>
 
