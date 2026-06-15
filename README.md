@@ -63,43 +63,24 @@ A Python-based running analytics platform that processes Garmin FIT files and ge
 
 ## 🛠️ Technologies
 <div align="center">
-
-<h4>🚀 Languages & Technologies</h4>
-
+  
 <!-- Languages -->
+
+<br>
+
+<img src="https://img.shields.io/badge/C-00599C?style=for-the-badge&logo=c&logoColor=white" />
+<img src="https://img.shields.io/badge/C++-00599C?style=for-the-badge&logo=cplusplus&logoColor=white" />
 <img src="https://img.shields.io/badge/Python-3776AB?style=for-the-badge&logo=python&logoColor=white" />
 <img src="https://img.shields.io/badge/SQL-336791?style=for-the-badge&logo=postgresql&logoColor=white" />
-<img src="https://img.shields.io/badge/C-00599C?style=for-the-badge&logo=c&logoColor=white" />
 <img src="https://img.shields.io/badge/Bash-121011?style=for-the-badge&logo=gnubash&logoColor=white" />
-
-<br><br>
-
-<!-- Cloud -->
-<img src="https://img.shields.io/badge/Google_Cloud-4285F4?style=for-the-badge&logo=googlecloud&logoColor=white" />
 <img src="https://img.shields.io/badge/Azure-0078D4?style=for-the-badge&logo=microsoftazure&logoColor=white" />
-<img src="https://img.shields.io/badge/BigQuery-669DF6?style=for-the-badge&logo=googlebigquery&logoColor=white" />
-<img src="https://img.shields.io/badge/Cloud_Composer-4285F4?style=for-the-badge&logo=apacheairflow&logoColor=white" />
-
-<br><br>
-
-<!-- Data Engineering -->
+<img src="https://img.shields.io/badge/GCP-4285F4?style=for-the-badge&logo=googlecloud&logoColor=white" />
 <img src="https://img.shields.io/badge/Airflow-017CEE?style=for-the-badge&logo=apacheairflow&logoColor=white" />
-<img src="https://img.shields.io/badge/Data_Engineering-0A66C2?style=for-the-badge" />
-<img src="https://img.shields.io/badge/Data_Analytics-4CAF50?style=for-the-badge" />
-
-<br><br>
-
-<!-- AI -->
 <img src="https://img.shields.io/badge/AI_Agents-412991?style=for-the-badge" />
-<img src="https://img.shields.io/badge/LLMs-10A37F?style=for-the-badge" />
-<img src="https://img.shields.io/badge/Agent_Governance-8E44AD?style=for-the-badge" />
-
-<br><br>
-
-<!-- DevOps -->
 <img src="https://img.shields.io/badge/Git-F05032?style=for-the-badge&logo=git&logoColor=white" />
 <img src="https://img.shields.io/badge/GitHub_Actions-2088FF?style=for-the-badge&logo=githubactions&logoColor=white" />
 <img src="https://img.shields.io/badge/Linux-FCC624?style=for-the-badge&logo=linux&logoColor=black" />
+
 
 </div>
 
