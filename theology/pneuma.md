@@ -18,10 +18,10 @@
 
 ## Opening Question
 
-**Why would we need to reset our mind every day — if we are already a Christian? Is the mind not set at conversion?**
+**Why would we need to reset our mind every day - if we are already a Christian? Is the mind not set at conversion?**
 
 Conversion gives a new birth, a new spirit, a new standing before God.
-But the mind — the inner orientation, the daily lean of thought and desire — still needs daily renewal.
+But the mind - the inner orientation, the daily lean of thought and desire - still needs daily renewal.
 Romans 12:2 says "be transformed by the renewing of your mind." It is present continuous tense.
 Not a one-time event. A daily work.
 
@@ -34,7 +34,7 @@ But the mind must be re-set every morning.
 
 Lord, teach us.
 Guide us.
-Set our minds on things that are above — every day.
+Set our minds on things that are above - every day.
 Reset our minds every day.
 In Jesus' name. Amen.
 
@@ -44,9 +44,9 @@ In Jesus' name. Amen.
 
 We will look at this in three movements:
 
-1. **The Structure** of Colossians 3:1-4 — the logical shape of the text (if/then, support, conclusion)
-2. **The Meaning of Pneuma** — what it means to "set your mind" in the Greek
-3. **Six things that are above** — and what it means to set and reset your mind on them daily
+1. **The Structure** of Colossians 3:1-4 - the logical shape of the text (if/then, support, conclusion)
+2. **The Meaning of Pneuma** - what it means to "set your mind" in the Greek
+3. **Six things that are above** - and what it means to set and reset your mind on them daily
 
 ---
 
@@ -70,17 +70,17 @@ Because of who you are (risen with Christ), here is what you must do:
 - **Seek** those things which are above *(active pursuit)*
 - **Set your mind** on things above *(active orientation)*
 
-Note: "Set your mind" in Greek is a verb form of **Pneuma/Phroneo** — the verb of the mind.
+Note: "Set your mind" in Greek is a verb form of **Pneuma/Phroneo** - the verb of the mind.
 It carries the full weight of mindset, inner tone, affection, and direction.
 Not just "think about heaven." **Orient your whole inner life upward.**
 
 ### Support / Foundation (v.3)
 > "For ye are dead, and your life is hid with Christ in God."
 
-Paul gives the reason — the *for* statement.
+Paul gives the reason - the *for* statement.
 You can set your mind above because:
-- **You have died** — your old self has no claim on you
-- **Your life is hidden** — held securely, invisibly, with Christ in God
+- **You have died** - your old self has no claim on you
+- **Your life is hidden** - held securely, invisibly, with Christ in God
 
 Your real life is not visible here yet. It is in safekeeping above.
 This means your daily anxieties are fighting over something that has already been secured.
@@ -89,8 +89,8 @@ This means your daily anxieties are fighting over something that has already bee
 > "When Christ, who is our life, shall appear, then shall ye also appear with him in glory."
 
 The logic reaches its climax:
-- Christ *is* your life — not just your Saviour, not just your example, but your very life
-- When He appears, *you* appear — because you are in Him
+- Christ *is* your life - not just your Saviour, not just your example, but your very life
+- When He appears, *you* appear - because you are in Him
 
 The reset is not just discipline. It is anticipation.
 You are setting your mind on where your life already is.
@@ -105,31 +105,31 @@ When Paul says "set your mind" (Greek: *phroneo*), he is not talking about mere 
 He is talking about the spirit, the orientation, the bent, the atmosphere of your mind.
 Pneuma means mind, heart, inner bent.
 
-Your mind has a spirit — a character, a leaning, a cast.
+Your mind has a spirit - a character, a leaning, a cast.
 The mind is not neutral. It is always tilted toward something.
 
 ---
 
-### Romans 11:20 — Mind of Humility vs. Pride
+### Romans 11:20 - Mind of Humility vs. Pride
 
 > "Well; because of unbelief they were broken off, and thou standest by faith. Be not highminded, but fear."
 
 Paul is writing about branches broken off (unbelieving Jews) and branches grafted in (Gentile believers).
 
-The command: **Do not become proud** — do not let your mind take on the spirit of arrogance.
+The command: **Do not become proud** - do not let your mind take on the spirit of arrogance.
 
 *Pneuma here means:* the mind has a spirit of humility or a spirit of pride.
-Your mind can wake up each morning and start doing haughty things — unless you reset it.
+Your mind can wake up each morning and start doing haughty things - unless you reset it.
 "Be not highminded" means: do not let that spirit settle in your inner man.
-Instead, fear — that is, walk in the reverent awareness that you stand by grace, not by merit.
+Instead, fear - that is, walk in the reverent awareness that you stand by grace, not by merit.
 
 ---
 
-### Philippians 2:5-7 — The Mind of Jesus
+### Philippians 2:5-7 - The Mind of Jesus
 
 > "Let this mind be in you which was also in Christ Jesus: Who, being in the form of God, thought it not robbery to be equal with God; but made himself of no reputation, and took upon him the form of a servant... and humbled himself."
 
-Paul says: **Have this slant of mind among you — in you.**
+Paul says: **Have this slant of mind among you - in you.**
 
 *What is the mindset of Jesus?*
 - Humility
@@ -142,14 +142,14 @@ This is not one action. This is the whole **cast of mind.**
 A complete inner orientation.
 
 *Contrast:* 
-- A mindset that can be arrogant: "I'm the leader, I will lead like Jesus" — but with pride
+- A mindset that can be arrogant: "I'm the leader, I will lead like Jesus" - but with pride
 - A mindset that is like Jesus: "I'm the servant, I will empty myself like Jesus"
 
-The same role — different spirit, different pneuma, different bent.
+The same role - different spirit, different pneuma, different bent.
 
 ---
 
-### Romans 8:1-4 — No Condemnation: The Ground of the Reset
+### Romans 8:1-4 - No Condemnation: The Ground of the Reset
 
 > "There is therefore now no condemnation to them which are in Christ Jesus. For the law of the Spirit of life in Christ Jesus hath made me free from the law of sin and death. For what the law could not do, in that it was weak through the flesh, God sending his own Son in the likeness of sinful flesh, and for sin, condemned sin in the flesh: That the righteousness of the law might be fulfilled in us, who walk not after the flesh, but after the Spirit."
 
@@ -171,22 +171,22 @@ So the reset is not guilt-driven. It is grace-driven.
 
 ---
 
-### Romans 8:5-8 — Mindset of the Flesh vs. Mindset of the Spirit
+### Romans 8:5-8 - Mindset of the Flesh vs. Mindset of the Spirit
 
 > "For they that are after the flesh do mind the things of the flesh; but they that are after the Spirit the things of the Spirit. For to be carnally minded is death; but to be spiritually minded is life and peace. Because the carnal mind is enmity against God: for it is not subject to the law of God, neither indeed can be. So then they that are in the flesh cannot please God."
 
 Paul draws a sharp line:
 
-*Those according to the flesh* — their mind is set on, inclined toward, bent on the things of the flesh.
+*Those according to the flesh* - their mind is set on, inclined toward, bent on the things of the flesh.
 Their pneuma is earthly.
 
-*Those according to the Spirit* — their mind is set on, inclined toward, bent on the things of the Spirit.
+*Those according to the Spirit* - their mind is set on, inclined toward, bent on the things of the Spirit.
 Their pneuma is heavenly.
 
 The carnal mind **cannot submit to God's law. It cannot please God.**
 
 But here is the key: if you are in Christ, you are no longer "in the flesh" (v.9).
-So you have the capacity — the new inner nature — to set your mind on things above.
+So you have the capacity - the new inner nature - to set your mind on things above.
 
 **The reset is possible because you have a new nature.**
 
@@ -200,7 +200,7 @@ From Colossians 3:1-4, we extract six foundational truths that shape your daily 
 
 ---
 
-### 1) Set Your Mind Above — Seek the Things Above
+### 1) Set Your Mind Above - Seek the Things Above
 
 > "Seek those things which are above, where Christ sitteth on the right hand of God."
 
@@ -220,7 +220,7 @@ The reset: **Seek instead the things above.**
 - Eternity
 
 This is not daydreaming. This is strategic feeding of your mindset.
-You are shaping your pneuma — your inner spirit — by where you deliberately place your seeking.
+You are shaping your pneuma - your inner spirit - by where you deliberately place your seeking.
 
 ---
 
@@ -253,23 +253,23 @@ You are activating what has already been done in union with Christ.
 
 This is the hardest truth to live. Paul explains it in multiple places.
 
-**Romans 6:5-6** — You died in union with Christ:
+**Romans 6:5-6** - You died in union with Christ:
 > "For if we have been planted together in the likeness of his death…"
 
-**Galatians 2:20** — The old *you* has been replaced:
+**Galatians 2:20** - The old *you* has been replaced:
 > "I am crucified with Christ: nevertheless I live; yet not I, but Christ liveth in me: and the life which I now live in the flesh I live by the faith of the Son of God."
 
 The old life was shaped by unbelief. The new life is shaped by faith.
 
-**Romans 7:4** — You died to the law through the body of Christ:
+**Romans 7:4** - You died to the law through the body of Christ:
 > "Wherefore, my brethren, ye also are become dead to the law by the body of Christ."
 
-**1 Peter 2:24** — He bore our sin so we might die to sin:
+**1 Peter 2:24** - He bore our sin so we might die to sin:
 > "Who his own self bare our sins in his own body on the tree, that we, being dead to sins, should live unto righteousness."
 
 *What does this mean for your mindset?*
 
-The old man — with his pride, his fear, his lust, his need to control — has no power over you.
+The old man - with his pride, his fear, his lust, his need to control - has no power over you.
 You are not trying to kill him. He is already dead.
 
 When your mind starts to lean toward the old sin patterns, you remind it:
@@ -292,13 +292,13 @@ This is comforting and disorienting at once.
 
 Your real life is not visible.
 It is not on display in this world.
-It is held in safekeeping — hidden with Christ in God.
+It is held in safekeeping - hidden with Christ in God.
 
-Think of it this way: while you are pursuing earthly success, status, security, comfort — your *actual* life is secure, hidden, kept by God Himself.
+Think of it this way: while you are pursuing earthly success, status, security, comfort - your *actual* life is secure, hidden, kept by God Himself.
 
-The anxieties you feel about losing your job, your reputation, your health — these are fears about things that are not your real life.
+The anxieties you feel about losing your job, your reputation, your health - these are fears about things that are not your real life.
 
-Your real life is Christ. And Christ is hidden — secure, eternal, untouchable.
+Your real life is Christ. And Christ is hidden - secure, eternal, untouchable.
 
 **1 Corinthians 1:30** reminds us where we are:
 > "But of him are ye in Christ Jesus, who of God is made unto us wisdom, and righteousness, and sanctification, and redemption."
@@ -328,9 +328,9 @@ Your very life is Him.
 > "I am crucified with Christ: nevertheless I live; yet not I, but Christ liveth in me."
 
 Paul does not say "Christ lives in my heart" as a poetic metaphor.
-He says "Christ liveth in me" — Christ *is* the life I am now living.
+He says "Christ liveth in me" - Christ *is* the life I am now living.
 
-Your daily existence — work, thought, speech, rest — is not *your* life + Christ's presence.
+Your daily existence - work, thought, speech, rest - is not *your* life + Christ's presence.
 It is Christ's life being lived through you.
 
 When you reset your mind, you are asking: **"What would Christ choose? What would Christ love? What would Christ pursue?"**
@@ -356,7 +356,7 @@ When you see Him, you will be like Him. Glory for glory. Transformation complete
 **Romans 8:22-23** describes the longing:
 > "For we know that the whole creation groaneth and travaileth in pain together until now. And not only they, but ourselves also, which have the firstfruits of the Spirit, even we ourselves groan within ourselves, waiting for the adoption, to wit, the redemption of our body."
 
-There is a groaning — a divine dissatisfaction with the broken world and the broken body.
+There is a groaning - a divine dissatisfaction with the broken world and the broken body.
 But it is leading somewhere. To adoption. To redemption of the body. To glory.
 
 **1 Corinthians 15:42-43** describes the transformation:
