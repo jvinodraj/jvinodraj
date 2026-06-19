@@ -6,6 +6,8 @@ I build intelligent systems, data platforms, and automation solutions using Pyth
 
 ---
 
+🌐 Portfolio: [https://jvinodraj.github.io]
+
 ## 📖 A Guiding Philosophy
 
 > *"Be renewed in the spirit of your mind."* — Ephesians 4:23
