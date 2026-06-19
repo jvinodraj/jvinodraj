@@ -127,6 +127,7 @@ A Python-based running analytics platform that processes Garmin FIT files and ge
 ## 🤝 Connect
 
 * GitHub: https://github.com/jvinodraj
+* Email: vinodraj.j@gmail.com
 
 ---
 
