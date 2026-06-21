@@ -261,7 +261,7 @@ You are shaping your pneuma - your inner spirit - by where you deliberately plac
 Your starting point is not your feelings or your performance.
 Your starting point is identity.
 
-*What does it mean?*
+**What does it mean? Secret - Hidden with christ**
 
 Paul teaches in Romans 6:5-6:
 > "For if we have been planted together in the likeness of his death, we shall be also in the likeness of his resurrection: Knowing this, that our old man is crucified with him, that the body of sin might be destroyed, that henceforth we should not serve sin."
@@ -299,11 +299,10 @@ The old life was shaped by unbelief. The new life is shaped by faith.
 
 *What does this mean for your mindset?*
 
-The old man - with his pride, his fear, his lust, his need to control - has no power over you.
-You are not trying to kill him. He is already dead.
+**The old man - with his pride, his fear, his lust, his need to control - has no power over you. You are not trying to kill him. He is already dead.**
 
-When your mind starts to lean toward the old sin patterns, you remind it:
-"I have died. That is not who I am anymore."
+**When your mind starts to lean toward the old sin patterns, you remind it:**
+**"I have died. That is not who I am anymore."**
 
 This is why Romans 7:6 says:
 > "But now we are delivered from the law, being dead to that wherein we were held; that we should serve in newness of spirit, and not in the oldness of the letter."
@@ -320,7 +319,7 @@ This is comforting and disorienting at once.
 
 *What does it mean?*
 
-Your real life is not visible.
+**Your real life is not visible.**
 It is not on display in this world.
 It is held in safekeeping - hidden with Christ in God.
 
