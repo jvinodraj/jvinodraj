@@ -21,6 +21,15 @@
 
 **Why would we need to reset our mind every day - if we are already a Christian? Is the mind not set at conversion?**
 
+1. Difference between இரட்சிப்பு (New Birth) and மனம் புதிதாக்கப்படுதல்
+2. Salvation
+3. 2 கொரிந்தியர் 5:17
+கிறிஸ்துவுக்குள் இருக்கிறவன் புதிய சிருஷ்டி.
+4. யோவான் 3:3(Dangers of not following and believing Him)
+மீண்டும் பிறக்காவிட்டால் தேவனுடைய ராஜ்யத்தை காண முடியாது.
+5. renewal of mind
+6. Romans 12:2 -  உங்கள் மனம் புதிதாக்கப்படுவதினாலே மாற்றமடையுங்கள்.
+
 Conversion gives a new birth, a new spirit, a new standing before God.
 But the mind - the inner orientation, the daily lean of thought and desire - still needs daily renewal.
 Romans 12:2 says "be transformed by the renewing of your mind." It is present continuous tense.
@@ -45,7 +54,7 @@ In Jesus' name. Amen.
 
 ## New Birth vs Reset the Mind (English + Tamil)
 
-| Aspect (EN) | புதிய பிறப்பு (New Birth) | மனதை தினமும் புதுப்பித்தல் / Reset the Mind |
+| Aspect (EN) | இரட்சிப்பு (New Birth) | மனம் புதிதாக்கப்படுதல் / Reset the Mind |
 |---|---|---|
 | What it is | தேவனால் ஒருமுறை நடைபெறும் ஆவிக்குரிய புதிய பிறப்பு | எண்ணம், விருப்பம், உள்ள நோக்கம் ஆகியவை தினந்தோறும் புதுப்படுதல் |
 | Biblical idea | மறுபிறப்பு, புதிய சிருஷ்டி | தொடர்ச்சியான மனமாற்றம், பரிசுத்தமாக்கப்படுதல் |
@@ -231,7 +240,7 @@ It is not escape from earth. It is a daily reorientation of desire and attention
 Your mind has a bent. You are asking it to bend upward.
 
 "Seek" means: pursue, make it your target, feed your inner vision with this reality.
-Every morning, your mind wants to default to earthly concerns: money, status, comfort, safety, reputation.
+Every morning, your mind wants to default to **earthly concerns: money, status, comfort, safety, reputation.**
 
 The reset: **Seek instead the things above.**
 - Christ's presence
