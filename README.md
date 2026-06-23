@@ -10,9 +10,9 @@ I build intelligent systems, data platforms, and automation solutions using Pyth
 
 ## 📖 A Guiding Philosophy
 
-> *"Be renewed in the spirit of your mind."* — Ephesians 4:23
+> *"Be renewed in the spirit of your mind."* - Ephesians 4:23
 
-The Greek phrase **τῷ πνεύματι τοῦ νοὸς** (*tō pneumati tou noos*) speaks of the inner spirit that governs the mind itself—not merely changing thoughts, but renewing the disposition from which thoughts arise.
+The Greek phrase **τῷ πνεύματι τοῦ νοὸς** (*tō pneumati tou noos*) speaks of the inner spirit that governs the mind itself-not merely changing thoughts, but renewing the disposition from which thoughts arise.
 
 This principle influences how I approach engineering:
 
