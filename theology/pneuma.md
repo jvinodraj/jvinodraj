@@ -445,7 +445,7 @@ Paul and Silas were beaten, stripped, and thrown into the inner dungeon with the
 
 > "And at midnight Paul and Silas prayed, and sang praises unto God." (Acts 16:25)
 
-**Their minds were cast on Christ—not on their circumstances.**
+**Their minds were cast on Christ - not on their circumstances.**
 
 - They could have beheld: the pain, the darkness, the injustice, the despair.
 - Instead, they beheld: Christ, God's faithfulness, praise, hope.
