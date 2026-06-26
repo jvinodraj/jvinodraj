@@ -1,7 +1,3 @@
-Here is the full background story of Paul and Silas — who they were, how they met, and everything that led up to that midnight moment in the prison — laid out as a complete narrative timeline.Now with that full picture in view, here is the complete narrative:
-
----
-
 ## Who Was Paul?
 
 Paul and Silas ministered together on the second missionary journey, which spans Acts 15 through 18. Before any of that, Paul — originally Saul of Tarsus — was a trained Pharisee and a fierce persecutor of Christians, until a blinding encounter with the risen Christ on the road to Damascus completely reversed his life. He became the apostle to the Gentiles, and by the time Acts 16 arrives, he had already survived stonings, shipwrecks, and rejection in city after city.
